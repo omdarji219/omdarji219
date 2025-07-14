@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **omdarji219@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1HX4aono3Woue_kLsPiVXyUAHyweUeIib/view?usp=drive_link](https://drive.google.com/file/d/1HX4aono3Woue_kLsPiVXyUAHyweUeIib/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1HX4aono3Woue_kLsPiVXyUAHyweUeIib/view?usp=drive_link](https://drive.google.com/file/d/1YTPOFCoPgemmBJs7rJXVdehu0DKYLsiu/view?usp=drive_link)
 
 - ⚡ Fun fact **I think i am funny**
 
